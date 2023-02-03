@@ -1,0 +1,1 @@
+# fukui-antenna-shop-map
